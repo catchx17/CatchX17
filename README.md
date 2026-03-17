@@ -1,4 +1,4 @@
-## Hello! 👋
+## Hello! I am ZeroX!👋
 
 Here are something about me:
 - 🌱 I’ve been graduated from AnHui University of Technology and have been working at [GREE](https://www.gree.com/) for one year.
