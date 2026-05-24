@@ -1,4 +1,4 @@
-## Hello! I am ZeroX!👋
+## Hello! I am Zerick Cox!👋
 
 Here are something about me:
 - 🌱 I’ve been graduated from AnHui University of Technology.
